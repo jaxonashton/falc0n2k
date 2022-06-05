@@ -1,7 +1,4 @@
-# 📷 Content creator
-# ∞🏳️‍🌈🖤 Autistic enby ace 
-# 🍽️ Foodie
-# 🌺 Dog, cat and plant dad
+## 📷 Content creator  ∞🏳️‍🌈🖤 Autistic enby ace  🍽️ Foodie  🌺 Dog, cat and plant dad
 
 *They/them* 
 
